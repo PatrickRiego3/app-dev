@@ -16,6 +16,4 @@ After - Tessa Young is dutiful daughter a separate student and loyal girlfriend 
 
 Coach Carter - Based on a real story, in which Richmond High School head basketball coach Ken Carter made headlines in 1999 for benching his undefeated team because of poor results.
 
-:stuck_out_tongue_winking_eye:
-:face_holding_back_tears:
-😁 😁 🗡️ 🐶
+🐕 ⛹️‍♂️ 👊 👊 👊
