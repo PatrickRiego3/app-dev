@@ -3,7 +3,8 @@ My First Repository
 | Syntax | Description |
 | ---------- | -------- |
 | Task Performance | Favorite Movie |
-| Cars | animation | 
+| After | Romance | 
+| Coach Carter | Sports |
 
 
 FirstName: Patrick Ian
